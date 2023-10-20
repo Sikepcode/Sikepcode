@@ -1,0 +1,1 @@
+- Olá! Me chamo Sike, um programador e designer iniciante em busca de conhecimento e desafios no mundo da tecnologia. Estou sempre aprendendo e buscando novas oportunidades para crescer tanto na programação quanto no design.👾
